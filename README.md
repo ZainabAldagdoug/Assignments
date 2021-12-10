@@ -1,2 +1,0 @@
-
-it consist of assignments. 
